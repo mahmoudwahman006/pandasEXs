@@ -5,3 +5,4 @@
 ## EX4 the fourth exercise with solving ^_^ ### completed (:
 ## EX5 the fourth exercise with solving ^_^ ### completed (:
 ## EX6 the fourth exercise with solving ^_^ ### completed (:
+## EX7 the fourth exercise with solving ^_^ ### completed (:
